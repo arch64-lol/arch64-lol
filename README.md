@@ -1,7 +1,7 @@
 ### Hi there, I'm arch64-lol! 👋
 
 - 📫 How to reach me : [Telegram - CaliforniaZA](https://t.me/CaliforniaZA)
-- I'm from Russia
+- 📫 I'm from Russia
 - 😄 Pronouns : He/His 
 - ⚡ Facts : 🤔..I hate Vegetarianism
 
