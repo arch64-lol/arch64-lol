@@ -1,6 +1,6 @@
 ### Hi there, offsetc666! 👋
 
-- 📫 How to reach me : [Telegram - offsetc666](https://t.me/offsetc666)  // [Telegram] - Ghost](https://t.me/Rebug1)
+- 📫 How to reach me : [Telegram - offsetc666](https://t.me/offsetc666)  // [Telegram - Ghost](https://t.me/Rebug1)
 - 📫 I'm from Russia
 - 😄 Pronouns : He/His 
 - ⚡ Facts : 🤔..I hate Vegetarianism
